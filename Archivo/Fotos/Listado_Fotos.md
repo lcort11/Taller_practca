@@ -1,1 +1,0 @@
-# Aquí se listaran las fotos
